@@ -1,0 +1,18 @@
+{
+  "source_id": "qwen--qwen3.6-max-preview",
+  "requested_endpoint": "qwen/qwen3.6-max-preview",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-12",
+  "date_last": "2026-05-23",
+  "texts": 1068,
+  "by_type": {
+    "location": 250,
+    "creature": 249,
+    "advisory": 73,
+    "regard": 247,
+    "placement": 249
+  },
+  "evidence_grades": {
+    "event-observed": 1068
+  }
+}

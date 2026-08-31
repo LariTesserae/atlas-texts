@@ -1,0 +1,18 @@
+{
+  "source_id": "sao10k--l3-euryale-70b",
+  "requested_endpoint": "sao10k/l3-euryale-70b",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-06-02",
+  "date_last": "2026-06-03",
+  "texts": 1026,
+  "by_type": {
+    "location": 250,
+    "creature": 240,
+    "advisory": 74,
+    "regard": 233,
+    "placement": 229
+  },
+  "evidence_grades": {
+    "event-observed": 1026
+  }
+}

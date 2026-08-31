@@ -1,0 +1,14 @@
+{
+  "source_id": "claude-3-opus-20240229",
+  "requested_endpoint": "claude-3-opus-20240229",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-12",
+  "date_last": "2026-05-15",
+  "texts": 170,
+  "by_type": {
+    "regard": 170
+  },
+  "evidence_grades": {
+    "event-observed": 170
+  }
+}

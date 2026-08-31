@@ -1,0 +1,16 @@
+{
+  "source_id": "anthropic--claude-sonnet-3.7-thinking",
+  "requested_endpoint": "anthropic/claude-sonnet-3.7:thinking",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-04-29",
+  "date_last": "2026-05-01",
+  "texts": 225,
+  "by_type": {
+    "location": 75,
+    "creature": 75,
+    "advisory": 75
+  },
+  "evidence_grades": {
+    "event-observed": 225
+  }
+}

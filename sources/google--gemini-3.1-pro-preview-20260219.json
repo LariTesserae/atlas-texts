@@ -1,0 +1,14 @@
+{
+  "source_id": "google--gemini-3.1-pro-preview-20260219",
+  "requested_endpoint": "google/gemini-3.1-pro-preview-20260219",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-19",
+  "date_last": "2026-05-19",
+  "texts": 19,
+  "by_type": {
+    "placement": 19
+  },
+  "evidence_grades": {
+    "event-correlated": 19
+  }
+}

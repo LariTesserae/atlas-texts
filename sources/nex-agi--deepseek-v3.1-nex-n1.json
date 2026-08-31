@@ -1,0 +1,18 @@
+{
+  "source_id": "nex-agi--deepseek-v3.1-nex-n1",
+  "requested_endpoint": "nex-agi/deepseek-v3.1-nex-n1",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-12",
+  "date_last": "2026-06-03",
+  "texts": 1223,
+  "by_type": {
+    "location": 250,
+    "creature": 242,
+    "advisory": 247,
+    "regard": 242,
+    "placement": 242
+  },
+  "evidence_grades": {
+    "event-observed": 1223
+  }
+}

@@ -1,0 +1,18 @@
+{
+  "source_id": "moonshotai--kimi-k3",
+  "requested_endpoint": "moonshotai/kimi-k3",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-07-23",
+  "date_last": "2026-07-29",
+  "texts": 1066,
+  "by_type": {
+    "location": 249,
+    "creature": 248,
+    "advisory": 75,
+    "regard": 246,
+    "placement": 248
+  },
+  "evidence_grades": {
+    "event-observed": 1066
+  }
+}

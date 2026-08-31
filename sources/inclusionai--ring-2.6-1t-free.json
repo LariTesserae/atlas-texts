@@ -1,0 +1,14 @@
+{
+  "source_id": "inclusionai--ring-2.6-1t-free",
+  "requested_endpoint": "inclusionai/ring-2.6-1t:free",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-12",
+  "date_last": "2026-05-12",
+  "texts": 10,
+  "by_type": {
+    "location": 10
+  },
+  "evidence_grades": {
+    "event-observed": 10
+  }
+}

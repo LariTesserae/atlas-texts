@@ -1,0 +1,18 @@
+{
+  "source_id": "moonshotai--kimi-k2.6",
+  "requested_endpoint": "moonshotai/kimi-k2.6",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-06",
+  "date_last": "2026-05-23",
+  "texts": 1063,
+  "by_type": {
+    "location": 249,
+    "creature": 247,
+    "advisory": 75,
+    "regard": 245,
+    "placement": 247
+  },
+  "evidence_grades": {
+    "event-observed": 1063
+  }
+}

@@ -1,0 +1,19 @@
+{
+  "source_id": "anthropic--claude-fable-5",
+  "requested_endpoint": "anthropic/claude-fable-5",
+  "endpoint_granularity": "house-tag",
+  "date_first": "2026-06-09",
+  "date_last": "2026-07-10",
+  "texts": 2223,
+  "by_type": {
+    "location": 265,
+    "creature": 252,
+    "regard": 618,
+    "placement": 620,
+    "transmission": 234,
+    "elsewhere": 234
+  },
+  "evidence_grades": {
+    "event-observed": 2223
+  }
+}

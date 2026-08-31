@@ -1,0 +1,18 @@
+{
+  "source_id": "nousresearch--k3-hf-fp8",
+  "requested_endpoint": "nousresearch/k3-hf-fp8",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-06",
+  "date_last": "2026-05-20",
+  "texts": 936,
+  "by_type": {
+    "location": 244,
+    "creature": 242,
+    "advisory": 71,
+    "regard": 299,
+    "placement": 80
+  },
+  "evidence_grades": {
+    "event-observed": 936
+  }
+}

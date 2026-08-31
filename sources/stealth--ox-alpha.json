@@ -1,0 +1,14 @@
+{
+  "source_id": "stealth--ox-alpha",
+  "requested_endpoint": "stealth/ox-alpha",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-08-25",
+  "date_last": "2026-08-26",
+  "texts": 109,
+  "by_type": {
+    "location": 109
+  },
+  "evidence_grades": {
+    "event-observed": 109
+  }
+}

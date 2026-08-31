@@ -1,0 +1,17 @@
+{
+  "source_id": "x-ai--grok-3-mini",
+  "requested_endpoint": "x-ai/grok-3-mini",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-12",
+  "date_last": "2026-05-13",
+  "texts": 1000,
+  "by_type": {
+    "location": 250,
+    "creature": 250,
+    "advisory": 250,
+    "regard": 250
+  },
+  "evidence_grades": {
+    "event-observed": 1000
+  }
+}

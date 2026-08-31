@@ -1,0 +1,18 @@
+{
+  "source_id": "z-ai--glm-5.1",
+  "requested_endpoint": "z-ai/glm-5.1",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-12",
+  "date_last": "2026-05-23",
+  "texts": 1069,
+  "by_type": {
+    "location": 250,
+    "creature": 250,
+    "advisory": 74,
+    "regard": 245,
+    "placement": 250
+  },
+  "evidence_grades": {
+    "event-observed": 1069
+  }
+}

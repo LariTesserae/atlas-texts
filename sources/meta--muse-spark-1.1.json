@@ -1,0 +1,16 @@
+{
+  "source_id": "meta--muse-spark-1.1",
+  "requested_endpoint": "meta/muse-spark-1.1",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-07-23",
+  "date_last": "2026-07-23",
+  "texts": 750,
+  "by_type": {
+    "location": 250,
+    "creature": 250,
+    "placement": 250
+  },
+  "evidence_grades": {
+    "event-observed": 750
+  }
+}

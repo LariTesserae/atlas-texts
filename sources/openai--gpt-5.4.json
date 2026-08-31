@@ -1,0 +1,18 @@
+{
+  "source_id": "openai--gpt-5.4",
+  "requested_endpoint": "openai/gpt-5.4",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-24",
+  "date_last": "2026-05-24",
+  "texts": 1065,
+  "by_type": {
+    "location": 249,
+    "creature": 249,
+    "advisory": 73,
+    "regard": 247,
+    "placement": 247
+  },
+  "evidence_grades": {
+    "event-observed": 1065
+  }
+}

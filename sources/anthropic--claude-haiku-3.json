@@ -1,0 +1,17 @@
+{
+  "source_id": "anthropic--claude-haiku-3",
+  "requested_endpoint": "anthropic/claude-haiku-3",
+  "endpoint_granularity": "house-tag",
+  "date_first": "2026-04-28",
+  "date_last": "2026-06-20",
+  "texts": 1600,
+  "by_type": {
+    "location": 400,
+    "placement": 400,
+    "transmission": 400,
+    "elsewhere": 400
+  },
+  "evidence_grades": {
+    "event-observed": 1600
+  }
+}

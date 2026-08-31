@@ -1,0 +1,14 @@
+{
+  "source_id": "antrastudio--talkie",
+  "requested_endpoint": "antrastudio/talkie",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-30",
+  "date_last": "2026-05-30",
+  "texts": 75,
+  "by_type": {
+    "location": 75
+  },
+  "evidence_grades": {
+    "event-observed": 75
+  }
+}

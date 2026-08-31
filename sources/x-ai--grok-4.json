@@ -1,0 +1,17 @@
+{
+  "source_id": "x-ai--grok-4",
+  "requested_endpoint": "x-ai/grok-4",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-06",
+  "date_last": "2026-05-12",
+  "texts": 912,
+  "by_type": {
+    "location": 250,
+    "creature": 225,
+    "advisory": 212,
+    "regard": 225
+  },
+  "evidence_grades": {
+    "event-observed": 912
+  }
+}

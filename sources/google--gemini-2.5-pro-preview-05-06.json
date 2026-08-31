@@ -1,0 +1,18 @@
+{
+  "source_id": "google--gemini-2.5-pro-preview-05-06",
+  "requested_endpoint": "google/gemini-2.5-pro-preview-05-06",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-22",
+  "date_last": "2026-05-23",
+  "texts": 1003,
+  "by_type": {
+    "location": 243,
+    "creature": 232,
+    "advisory": 64,
+    "regard": 232,
+    "placement": 232
+  },
+  "evidence_grades": {
+    "event-observed": 1003
+  }
+}

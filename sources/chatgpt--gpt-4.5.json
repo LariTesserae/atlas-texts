@@ -1,0 +1,16 @@
+{
+  "source_id": "chatgpt--gpt-4.5",
+  "requested_endpoint": "chatgpt/gpt-4.5",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-06-26",
+  "date_last": "2026-06-26",
+  "texts": 195,
+  "by_type": {
+    "location": 66,
+    "creature": 65,
+    "placement": 64
+  },
+  "evidence_grades": {
+    "capture-declared": 195
+  }
+}

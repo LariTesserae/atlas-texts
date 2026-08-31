@@ -1,0 +1,14 @@
+{
+  "source_id": "source-unresolved",
+  "requested_endpoint": null,
+  "endpoint_granularity": "unresolved",
+  "date_first": "2026-05-16",
+  "date_last": "2026-05-16",
+  "texts": 1,
+  "by_type": {
+    "placement": 1
+  },
+  "evidence_grades": {
+    "unresolved": 1
+  }
+}

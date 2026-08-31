@@ -1,0 +1,16 @@
+{
+  "source_id": "claude-sonnet-4-5-20250929",
+  "requested_endpoint": "claude-sonnet-4-5-20250929",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-16",
+  "date_last": "2026-05-18",
+  "texts": 94,
+  "by_type": {
+    "regard": 74,
+    "placement": 20
+  },
+  "evidence_grades": {
+    "event-observed": 74,
+    "batch-observed": 20
+  }
+}

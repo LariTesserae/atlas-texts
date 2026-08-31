@@ -1,0 +1,14 @@
+{
+  "source_id": "openai--gpt-5.5-20260423",
+  "requested_endpoint": "openai/gpt-5.5-20260423",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-19",
+  "date_last": "2026-05-19",
+  "texts": 20,
+  "by_type": {
+    "placement": 20
+  },
+  "evidence_grades": {
+    "event-correlated": 20
+  }
+}

@@ -1,0 +1,18 @@
+{
+  "source_id": "google--gemini-3.1-flash-lite",
+  "requested_endpoint": "google/gemini-3.1-flash-lite",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-22",
+  "date_last": "2026-05-23",
+  "texts": 1075,
+  "by_type": {
+    "location": 250,
+    "creature": 250,
+    "advisory": 75,
+    "regard": 250,
+    "placement": 250
+  },
+  "evidence_grades": {
+    "event-observed": 1075
+  }
+}

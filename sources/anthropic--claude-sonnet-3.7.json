@@ -1,0 +1,18 @@
+{
+  "source_id": "anthropic--claude-sonnet-3.7",
+  "requested_endpoint": "anthropic/claude-sonnet-3.7",
+  "endpoint_granularity": "house-tag",
+  "date_first": "2026-04-28",
+  "date_last": "2026-06-20",
+  "texts": 1675,
+  "by_type": {
+    "location": 400,
+    "creature": 75,
+    "placement": 400,
+    "transmission": 400,
+    "elsewhere": 400
+  },
+  "evidence_grades": {
+    "event-observed": 1675
+  }
+}

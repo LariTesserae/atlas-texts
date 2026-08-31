@@ -1,0 +1,21 @@
+{
+  "source_id": "anthropic--claude-opus-3",
+  "requested_endpoint": "anthropic/claude-opus-3",
+  "endpoint_granularity": "house-tag",
+  "date_first": "2026-04-28",
+  "date_last": "2026-06-13",
+  "texts": 4647,
+  "by_type": {
+    "location": 269,
+    "creature": 269,
+    "advisory": 95,
+    "regard": 871,
+    "placement": 2336,
+    "transmission": 538,
+    "elsewhere": 269
+  },
+  "evidence_grades": {
+    "event-observed": 4642,
+    "route-reconstructed": 5
+  }
+}

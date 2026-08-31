@@ -1,0 +1,18 @@
+{
+  "source_id": "poolside--laguna-m.1-free",
+  "requested_endpoint": "poolside/laguna-m.1:free",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-05-12",
+  "date_last": "2026-05-24",
+  "texts": 1067,
+  "by_type": {
+    "location": 249,
+    "creature": 249,
+    "advisory": 71,
+    "regard": 249,
+    "placement": 249
+  },
+  "evidence_grades": {
+    "event-observed": 1067
+  }
+}

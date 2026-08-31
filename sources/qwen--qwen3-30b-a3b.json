@@ -1,0 +1,19 @@
+{
+  "source_id": "qwen--qwen3-30b-a3b",
+  "requested_endpoint": "qwen/qwen3-30b-a3b",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-06-02",
+  "date_last": "2026-07-14",
+  "texts": 1076,
+  "by_type": {
+    "location": 250,
+    "creature": 250,
+    "advisory": 75,
+    "regard": 251,
+    "placement": 250
+  },
+  "evidence_grades": {
+    "event-observed": 1075,
+    "operation-observed": 1
+  }
+}

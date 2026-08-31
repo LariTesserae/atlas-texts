@@ -1,0 +1,18 @@
+{
+  "source_id": "anthropic--claude-opus-5",
+  "requested_endpoint": "anthropic/claude-opus-5",
+  "endpoint_granularity": "house-tag",
+  "date_first": "2026-07-25",
+  "date_last": "2026-08-16",
+  "texts": 1053,
+  "by_type": {
+    "location": 250,
+    "creature": 249,
+    "advisory": 74,
+    "regard": 235,
+    "placement": 245
+  },
+  "evidence_grades": {
+    "event-observed": 1053
+  }
+}
